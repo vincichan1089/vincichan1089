@@ -1,6 +1,6 @@
 # Hi, I'm Vinci Chan 👋
 
-I’m interested in **finance**, **data**, and **research workflows**.
+I’m interested in **finance** and **data**.
 
 ## Experience
 
