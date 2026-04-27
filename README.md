@@ -25,7 +25,7 @@ Hi, I'm Vinci Chan 👋
 📫 How to reach me:
 
 * **Email**: [vincichan2233@gmail.com](mailto:vincichan2233@gmail.com)
-* **LinkedIn**: [linkedin.com/in/vincichan](https://linkedin.com/in/vincichan)
+* **LinkedIn**: [linkedin.com/in/vincichan1089](https://linkedin.com/in/vincichan1089)
 * **GitHub**: [VinciChan2233](https://github.com/VinciChan2233)
 
 🏃 Outside of work: American football, calisthenics, anime, and exploring new hiking trails.
