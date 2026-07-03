@@ -1,7 +1,3 @@
-# Hi, I'm Vinci Chan 👋
-
-I’m interested in **finance** and **data**.
-
 ## Experience
 
 - 📝 Currently **Case Writer / Research Assistant** at [HKU Business School](https://www.hkubs.hku.hk/)  
