@@ -1,6 +1,6 @@
 ## Experience
 
-- 📝 Currently **Case Writer / Research Assistant** at [HKU Business School](https://www.hkubs.hku.hk/)  
+- 📝 Currently **Case Writer** at [HKU Business School](https://www.hkubs.hku.hk/)  
   *Business case development, data-driven analysis, and writing for teaching and competition use*
 
 - 🏦 Previously in **Financial Institutions Coverage** at [Standard Chartered](https://www.sc.com/)  
